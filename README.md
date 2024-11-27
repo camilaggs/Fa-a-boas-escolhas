@@ -1,1 +1,1 @@
-# Fa-a-boas-escolhas
+# Faça-boas-escolhas
